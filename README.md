@@ -21,8 +21,8 @@ $\color{#E7B7CE}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤ [Straw](https://bonbonn.straw.
 
 $\color{#E7B7CE}{\text{Read straw bfi or follow}}$
 
+[![Typing SVG](https://demolab.com)](https://git.io)
 
-[![Typing SVG](https://herokuapp.com)](https://git.io/typing-svg)
 
 
 ㅤㅤㅤㅤㅤㅤㅤ
