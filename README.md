@@ -1,3 +1,5 @@
+<img width="540" height="38" alt="680858421-601e888c-82f8-43c4-82cd-b5870195af99" src="https://github.com/user-attachments/assets/a3070b88-1bf4-407f-827b-c20cd6a69f8c" />
+
 
 
 $\color{#FF0000}{\textbf{STRICTLY BERRYFUNNY DNI!}}$
