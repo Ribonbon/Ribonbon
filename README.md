@@ -1,4 +1,4 @@
-$\color{#eddae3}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤㅤ [Straw](https://bonbonn.straw.page/)
+$\color{#eddae3}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤ [Straw](https://bonbonn.straw.page/)
 ㅤㅤㅤㅤㅤㅤㅤ
 $\color{#eddae3}{\text{Read straw bfi or follow}}$
 ㅤㅤㅤㅤㅤㅤㅤ
