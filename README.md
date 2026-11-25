@@ -10,14 +10,13 @@
 
 
 
-$\color{#FF0000}{\textbf{STRICTLY BERRYFUNNY DNI!}}$
-
+STRICTLY BERRYFUNNY DNI!
 
 ㅤㅤㅤㅤㅤㅤㅤ
 
 
 
-$\color{#E7B7CE}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤ [Straw](https://bonbonn.straw.page/)
+$\color{#E7B7CE}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤ [Straw](https://bonbonn.straw.page/) [Cossmie's Strawpage](https://cossmie.straw.page/)
 ㅤㅤㅤㅤㅤㅤㅤ
 
 $\color{#E7B7CE}{\text{Read straw bfi or follow}}$ ㅤㅤㅤㅤㅤㅤㅤ
