@@ -27,12 +27,4 @@ $\color{#E7B7CE}{\text{Cosmo kin  ,  Sprout yume}}$
 
 
 
-<img width="575" height="73" alt="tumblr_375b0026f48b1ab85b4afa7925dd5473_c6343018_640" src="https://github.com/user-attachments/assets/9e322b74-b1af-469b-a5d1-4e61b56230f2" />
-
-
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤ
-
+<img width="512" height="76" alt="286_Sem_Titulo_20261126191426" src="https://github.com/user-attachments/assets/ce2dff20-7c02-4d8a-90b7-95ab24ff05a6" />
