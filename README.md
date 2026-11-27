@@ -17,7 +17,7 @@ STRICTLY BERRYFUNNY DNI!
 
 
 
-$\color{#E7B7CE}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤ [Straw](https://bonbonn.straw.page/) ㅤㅤ [Cossmie's Straw](https://cossmie.straw.page/)
+$\color{#E7B7CE}{\text{✿ Bonbon}}$ ㅤㅤㅤㅤ [Straw](https://bonbonn.straw.page/) ㅤㅤ [Cossmie's Straw](https://cossmie.straw.page/) ㅤㅤ [Pronouns](https://pronouns.cc/@cutwBonbon)
 ㅤㅤㅤㅤㅤㅤㅤ
 
 $\color{#E7B7CE}{\text{Read straw bfi or follow}}$ ㅤㅤㅤㅤㅤㅤㅤ
